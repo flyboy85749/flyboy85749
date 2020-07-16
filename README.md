@@ -1,4 +1,6 @@
 ### Hi there 👋
+Pronouns: He/Him (never really understood this, 'William' should be self-explanatory)
+Fun Fact: I don't like pronouns, I prefer amateurnouns 
 
 <!--
 **flyboy85749/flyboy85749** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
