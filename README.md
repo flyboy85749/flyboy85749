@@ -2,7 +2,7 @@
 ### Pronouns: He/Him (never really understood this, 'William' should be self-explanatory)
 ### Fun Fact: I don't like pronouns, I prefer amateurnouns 
 
-<img src="https://user-images.githubusercontent.com/3104489/97828882-616ae680-1c96-11eb-8110-4f39349b4033.gif" />
+
 <!--
 **flyboy85749/flyboy85749** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
